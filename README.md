@@ -1,2 +1,2 @@
 
-<div class="tenor-gif-embed" data-postid="20240122" data-share-method="host" data-aspect-ratio="1.22605" data-width="100%"><a href="https://tenor.com/view/%D8%AA%D8%B1%D8%A7%D8%B2%D9%88-gif-20240122">ترازو Sticker</a>from <a href="https://tenor.com/search/%D8%AA%D8%B1%D8%A7%D8%B2%D9%88-stickers">ترازو Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+https://tenor.com/view/%D8%AA%D8%B1%D8%A7%D8%B2%D9%88-gif-20240122
