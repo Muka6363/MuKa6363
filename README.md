@@ -1,2 +1,1 @@
-
-https://tenor.com/view/%D8%AA%D8%B1%D8%A7%D8%B2%D9%88-gif-20240122
+![ترازو](https://user-images.githubusercontent.com/101215803/180097377-d89c96e8-62ba-4866-b357-08727366de14.gif)
