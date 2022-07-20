@@ -1,4 +1,4 @@
-![WhatsApp Image 2022-05-17 at 23 32 28](https://user-images.githubusercontent.com/101215803/180095056-b3b2f733-0b6c-41f5-8159-25cd026e9d42.jpeg)
+
 ### Hi there 👋
 
 <!--
